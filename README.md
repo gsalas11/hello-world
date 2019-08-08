@@ -1,2 +1,3 @@
 # hello-world
 Learning how to use github.
+Hello my name is Jerry Salas and I am teaching my self how to code so that I can land my self a good job. It will be a job that will be comlpletey satisfying and provide me with all the financial stability I can ask for! My life will be completey changed forever! I will have a beautiful wife who will let me fuck other girls and be completey understanding and approving  of it. Of course she will never want to fuck other motherfuckers except for me. We will be completely in love with one another. I will have at least five cars at my disposal at all times. More to come on this.
